@@ -27,6 +27,5 @@ english study
      /ʊ/
 
 ## 附加
-can  can’t   
-口语中如何区分can，can’t
+- 口语中如何区分 can & can’t：   
 肯定时重读在can，如果否定重点在can’t后的单词上   
